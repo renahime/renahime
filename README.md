@@ -1,8 +1,8 @@
 # （✿ ͡◕ ᴗ◕)つ━━✫・*。 Welcome~
 
 
-- 🔭 I’m currently working on fixing up my projects, and learning to be familar with TypeScript.
-- 🌱 I’m currently learning Angular.
+- 🔭 I’m currently working on a discord bot that tracks data.
+- 🌱 I’m currently learning Java and MYSQL.
 - 👯 I’m looking to collaborate on learning DS&A.
 - 🤔 I’m looking for help with DS&A.
 - 💬 Ask me about my sewing and knitting projects!
