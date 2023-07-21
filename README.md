@@ -8,7 +8,7 @@
 - 💬 Ask me about my sewing and knitting projects!
 - 📫 How to reach me: Email me at rena@rena.farm.
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I am a big fan of idols! I go around the country to preform with my friends at idol showcases.
+- ⚡ Fun fact: I am a big fan of idols! I go around the country to perform with my friends at idol showcases.
 
 
 
