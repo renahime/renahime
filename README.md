@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on learning DS&A.
 - 🤔 I’m looking for help with DS&A.
 - 💬 Ask me about my sewing and knitting projects!
-- 📫 How to reach me: Email me at rena@rena.farm.
+- 📫 How to reach me: Email me at renahime.dev@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am a big fan of idols! I go around the country to perform with my friends at idol showcases.
 
